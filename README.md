@@ -1,6 +1,6 @@
 # Sugerencias
 
-Las sugerencias nos ayudan bastante para aquellos que comprendan que las ideas puedes ser transmitidas. ¡Por eso mismo, te invitamos a sugerir todas las ideas que tengan en mente y quieres que sean aplicadas a Erina!
+Las sugerencias nos ayudan bastante para aquellos que comprendan que las ideas puedes ser transmitidas. ¡Por eso mismo, te invitamos a sugerir todas las ideas que tengan en mente!
 
 ### ¿Cómo realizar una sugerencia?
 
