@@ -3,8 +3,8 @@
 Las sugerencias nos ayudan bastante, nos encantaría poder transmitir tu idea. 
 
 La mejor idea obtendrá:
-- Reconomiento en los créditos.
-- Reconocimiento de Erina, obtendrás una medalla por tu idea y también la medalla de contribuidor.
+- **Reconomiento en los créditos:** Tú eres el ideador principal.
+- **Reconocimiento de Erina:** Por tu creatividad obtendrás una medalla y también la medalla de contribuidor. ¡Premio doble!
 
 ## ¿Cómo realizar una sugerencia?
 
